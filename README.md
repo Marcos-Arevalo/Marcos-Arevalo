@@ -18,7 +18,7 @@
 
 # 📩 Contacto
 
-**Número :**+34 640 50 11 72 **
+**Número :**+34 640 50 11 72**
 
 **Correo :**marcosaprometeo@gmail.com**
 
